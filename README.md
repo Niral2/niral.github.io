@@ -1,1 +1,1 @@
-# niral2.github.io
+# niral.github.io
